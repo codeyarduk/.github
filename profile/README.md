@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+We are a team of a developers and designers who provide companies in the fitness space with expertly crafted websites.
+
 <!--
 
 **Here are some ideas to get you started:**
