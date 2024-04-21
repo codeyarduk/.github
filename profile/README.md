@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-☕️ We are a team of a developers and designers who provide expertly crafted websites to companies in the fitness space.
+We are a team of a developers and designers who provide expertly crafted websites to companies in the fitness space.
 
 <!--
 
