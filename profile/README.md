@@ -1,1 +1,1 @@
-![codeyard](https://github.com/codeyarduk/.github/assets/123392630/42b1d58f-be2d-44c6-a3fd-927f75be93f4)
+![Indroduction - Desktop](https://github.com/user-attachments/assets/b1d4fe8f-8743-40a7-9a29-d8ff46c886df)
